@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @JessEngel
 - 👀 I’m interested in Gaming, Reading and Food
 - 🌱 I’m currently learning how to code!
-- 📫 How to reach me discord @jarvantheshadowdancer
+- 📫 How to reach me: Discord @jarvantheshadowdancer
 - 😄 Pronouns: She/they
 - ⚡ Fun fact: I like trying new food combinations!
 
